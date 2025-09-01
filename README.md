@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @BU5
-- 👀 I’m interested in ... random stuff
-- 🌱 I’m currently learning ... how to live life
-- 💞️ I’m looking to collaborate on ... living life
-- 📫 How to reach me ...rob#8888
+I'm Rob
+D1 clash demon
